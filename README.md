@@ -34,7 +34,7 @@
 
 Я всегда была заинтересована в получении высшего образования в Российской Федерации и поступила в самый престижный ВУЗ России – **НИУ ВШЭ**,  на факультет гуманитарных наук,  образовательную программу *“Иностранные языки и межкультурная коммуникация”*.
 
-![github-small](https://www.google.ru/search?q=hse+logo&newwindow=1&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjZxK2SheXYAhVBqSwKHRzNAIoQ_AUICigB&biw=1366&bih=662#imgrc=JthwM8OwKea9vM:)
+![github-small](https://www.google.ru/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwi96uOsiOXYAhUGDywKHfgSA3wQjRwIBw&url=https%3A%2F%2Fwww.hse.ru%2Finfo%2Flogo&psig=AOvVaw0JgPKogc7Q9jue3tG9CCaJ&ust=1516486968217055)
 
 Возникающие проблемы в учебе я преодолеваю за счет исключительного трудолюбия и самодисциплины. Родные и знакомые всегда отмечали меня умением работать в команде, ответственностью, мотивированностью, активностью, усердием, сдержанностью, рассудительностью, внимательностью и самостоятельностью.
 
