@@ -47,5 +47,5 @@ nka4270@gmail.com
 
 nbayarsaykhan@edu.hse.ru
 
-![](https://www.google.ru/search?newwindow=1&biw=1366&bih=662&tbm=isch&sa=1&ei=aCJmWsaYIa2TmgWa4peoAQ&q=thanks&oq=thanks&gs_l=psy-ab.3..0l10.241867.243866.0.244572.6.6.0.0.0.0.132.517.5j1.6.0....0...1c.1.64.psy-ab..0.6.515...0i67k1.0.OE7ikJ12txo#imgrc=QvLIEhcXSn3WiM:)
+![](https://www.google.ru/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwj016fOkOzYAhUC1ywKHV6yCyoQjRwIBw&url=http%3A%2F%2Fwww.thanks.paris%2F&psig=AOvVaw01TTjwcRmqe6zDDAsFQnXA&ust=1516729566815379)
 
