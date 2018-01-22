@@ -47,5 +47,5 @@ nka4270@gmail.com
 
 nbayarsaykhan@edu.hse.ru
 
-![](https://www.google.ru/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwj016fOkOzYAhUC1ywKHV6yCyoQjRwIBw&url=http%3A%2F%2Fwww.thanks.paris%2F&psig=AOvVaw01TTjwcRmqe6zDDAsFQnXA&ust=1516729566815379)
+![](http://3.bp.blogspot.com/-_DLc3qDxsNA/VenIznBsK7I/AAAAAAAAB0A/GHjI_97B364/s1600/TheFunk.jpg)
 
