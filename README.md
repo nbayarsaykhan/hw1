@@ -2,8 +2,6 @@
 
 Меня зовут *Баярсайхан Номундарь*. Я родилась 21 мая 2000 года, в городе *Улан-Батор, Монголия*.
 
-![](https://www.google.ru/search?q=nomuka+nka&newwindow=1&tbm=isch&tbo=u&source=univ&sa=X&ved=0ahUKEwjYg4WTj-zYAhVJhaYKHVXABOEQsAQIKQ&biw=1366&bih=662#imgrc=v5sHgW1MxhASRM:)
-
 Много лет занималась в хореографическом кружке, выступала на концертах разного уровня. Неоднократно принимала участие в благотворительных праздниках для детей-сирот, была отмечена грамотами. Окончила музыкальную школу по классу фортепьяно, победила в национальном конкурсе юных пианистов.
 
 В 2005 году начала учебу в **Улан-Баторском филиале РЭУ им. Г.В.Плеханова**. 
@@ -48,3 +46,6 @@
 nka4270@gmail.com
 
 nbayarsaykhan@edu.hse.ru
+
+![](https://www.google.ru/search?newwindow=1&biw=1366&bih=662&tbm=isch&sa=1&ei=aCJmWsaYIa2TmgWa4peoAQ&q=thanks&oq=thanks&gs_l=psy-ab.3..0l10.241867.243866.0.244572.6.6.0.0.0.0.132.517.5j1.6.0....0...1c.1.64.psy-ab..0.6.515...0i67k1.0.OE7ikJ12txo#imgrc=QvLIEhcXSn3WiM:)
+
